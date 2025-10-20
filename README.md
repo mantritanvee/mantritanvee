@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate on don't know, but any new thing is always welcome
 - 📫 How to reach me mantritanvee@gmail.com |
                      https://www.linkedin.com/in/tanvee-mantri-72a74099/ |
-                     https://www.mantritanvee26.blogspot.com |
-                     https://www.mantritanvee.blogspot.com |
+                     8928559320 |
 
 <!---
 mantritanvee/mantritanvee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
